@@ -31,12 +31,6 @@
 - Organized and updated syllabus.
 - Prepared lesson plans for classes.
 
-## Language Proficiencies
-
-- **English:** Fluent
-- **Bangla:** Native
-- **Hindi:** Fluent
-
 ## Volunteering
 
 - **General Secretary:** Chokh Film Society (Art and Culture)
